@@ -11,4 +11,6 @@ title: "Chachat au rhum"
 
 4. Vous avez maintenant un chachat au rhum. L'ajout de crème chantilly est facultatif. 
 
-![Vache très perturbée](/images/confused cow.png) 
+![Vache très perturbée](/images/confused cow.png)  
+ 
+Image par [Sarah Boynton](https://www.sandraboynton.com/sboynton/Introduction.html) 

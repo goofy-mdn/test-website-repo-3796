@@ -13,8 +13,4 @@ et des *regrets*
 le seul **chemin**  
 que j'ai suivi  
 ne menait *guère*  
-plus loin qu'hier  
-le seul **chemin**  
-que j'ai suivi  
-ne menait *guère*  
 plus loin qu'hier 

@@ -9,7 +9,7 @@ title: "Chachat au rhum"
 
 3. L'odeur est désagréable, pour la faire passer, prenez un verre de **rhum** agricole.
 
-4. Vous avez maintenant un chachat au rhum. L'ajout de crème chantilly est facultatif. 
+4. Vous avez maintenant un chachat au rhum. L'ajout de *crème chantilly* est facultatif. 
 
 ![Vache très perturbée](/images/confused cow.png)  
  
